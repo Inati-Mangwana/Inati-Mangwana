@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Inati-Mangwana
-- 👀 I’m interested in Software Development
+- 👀 I’m interested in IT
 - 🌱 I’m currently learning some new programming languages
 - 💞️ I’m looking to collaborate on 
 - 📫 How to reach me i.mangwana2010198@gmail.com
